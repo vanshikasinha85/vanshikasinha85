@@ -2,7 +2,7 @@
 - 👀 I’m interested in dancing 
 - 🌱 I’m currently in btech first year
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me instagram: @vanshikasinha_85
 
 <!---
 vanshikasinha85/vanshikasinha85 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
